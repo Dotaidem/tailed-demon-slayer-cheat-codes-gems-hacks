@@ -1,2 +1,5 @@
-# tailed-demon-slayer-cheat-codes-gems-hacks
-Tailed Demon Slayer Cheats and Codes 2022 unlimited gems hacks
+# Tailed Demon Slayer Cheats and Codes 2022 unlimited gems hacks
+
+Tailed Demon Slayer Cheats and Codes 2022 unlimited gems hacks - It takes gold to improve these parameters, but some other things foxes use give them amazing power. For example, foxes also have some equipment slots where they can wave the weapons of your choice or wear powerful armor. These passively increase the attributes of the fox. If you want to upgrade a device, you can simply press the upgrade button to merge their copies. If there are many duplicates, pressing the "upgrade all at once" button will automatically merge them. In addition, foxes can have magical relics (but we don't know the magic of moth eating apples). These cultural relics have special benefits and will be improved every time they are upgraded. Suppose you have a letter from the Lich King. This item will increase your attack and critical hit chances when you upgrade it with relic fragments. There are other similar cultural relics that can be superimposed with Tailed Demon Slayer coupon.
+
+<a href="https://windmod.icu/tailed-demon-slayer/">Check now</a>
